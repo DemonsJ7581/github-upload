@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+- The smell in the air right before it rains :cloud_with_rain:
+- I LOVE my dog Bella  :dog:
+- The smell and taste of coffee in the morning :coffee: 
+- My favorite book is Earth Abides by George R Stewart :open_book:
+- I love the ocean :ocean:  
